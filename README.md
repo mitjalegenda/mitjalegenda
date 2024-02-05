@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mitjalegenda
+- 👀 I’m interested in gang gang
+- 🌱 I’m currently learning.
+- 💞️ I’m looking to collaborate on sommin'.
+- 📫 How to reach me - Mitja
+- 😄 Pronouns: im him
+- ⚡ Fun fact: 
